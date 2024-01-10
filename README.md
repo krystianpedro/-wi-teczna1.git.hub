@@ -1,1 +1,0 @@
-# -wi-teczna1.git.hub
